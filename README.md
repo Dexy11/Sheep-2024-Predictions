@@ -1,7 +1,7 @@
 # Sheep-2024-Predictions
 
 #### Sheep
-![img]([https://www.scmp.com/lifestyle/arts-culture/article/3248034/year-dragon-2024-your-luck-predictions-all-12-chinese-zodiac-signs-health-money-work-and-love](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/5c89282f-a9fb-4c0c-91e2-e1085eeca297_c0ec0091.jpg))
+![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/5c89282f-a9fb-4c0c-91e2-e1085eeca297_c0ec0091.jpg)
 
 -_**Lucky numbers:**1,6_
 -_**Lucky colour:**Gold_
